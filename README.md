@@ -1,6 +1,5 @@
-- 👋 Hi, I’m @azalee
-- 👀 I’m interested in switch hacking/web add-ons
-- 🌱 I’m currently learning nothing
+- 👋 Hi, I’m !𝕆𝕩𝕠𝕠𝕞𝕪!
+- 👀 I’m interested in websites.
+- 🌱 I’m currently learning how to make a website.
 - 💞️ I’m looking to collaborate on any projets
-- 📫 How to reach me : use my discord : Yélinn_Goument#0001
-
+- 📫 How to reach me : use my discord : !𝕆𝕩𝕠𝕠𝕞𝕪#2022
